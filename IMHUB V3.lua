@@ -1,3 +1,5 @@
+-- Rouba não Bro vai Fazer o Seu, Usa Dex SimpleSpy Pra fazer
+-- Mais e Ladrao em 🫩
 -- [ PROTECTION: SKIDPROOF ]
 -- [ STATUS: ARMORED ]
 -- [ TIMESTAMP: 02/08/2026 ]
